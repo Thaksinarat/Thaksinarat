@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Game design.
 - 📫 How to reach me: Facebook{Sa Ta Ng} Instargrame{ssa_tta} Email{thaksinarat.s@gmail.com} Tel.{0964052282}
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: [1] I really love in Anime!! [2] I'm not good with English.
+- ⚡ Fun fact: [1] I really love in Anime!! [2] I'm not great at English, but I'll try my best.
 
 <!---
 Thaksinarat/Thaksinarat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
